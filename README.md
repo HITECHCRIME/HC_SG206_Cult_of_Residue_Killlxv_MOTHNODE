@@ -28,10 +28,12 @@ make up your mind, brethren be damned
 make up your mind, traces all around
 what you gonna find
 
-SO IT'S 
-ALL FORGIVEN COUNT YOUR BLESSINGS
-NEVER FEELING VERTIGOS YOUR SO IT'S HAD A FOR BUT
+SO IT'S ALL FORGIVEN COUNT YOUR BLESSINGS
+SEE I NEVER FELT THE VERTIGOS PRESSING ON MY MERIT
+YOU JUST BETTER NEED TO HEED MY WARNING
 SEER HAD A VISION BUT HE NEVER SEES IT ALL
+
+ YOUR SO IT'S HAD A FOR BUT
 
 rest in fervent fever till I take my curses back
 in your life's name

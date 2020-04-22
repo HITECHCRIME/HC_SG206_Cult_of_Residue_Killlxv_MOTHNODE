@@ -28,7 +28,7 @@ make up your mind, brethren be damned
 make up your mind, traces all around
 what you gonna find
 
-SO IT'S ALL FORGIVEN YOUR BLESSINGS NEVER COUNT
+SO IT'S ALL FORGIVEN NEVER COUNT YOUR BLESSINGS 
 SEE I NEVER FELT THE VERTIGOS PRESSING ON MY MERIT
 YOU JUST BETTER NEED TO HEED MY OMENS BLOOD 
 SEER HAD A VISION BUT HE NEVER SEES IT ALL
@@ -36,8 +36,7 @@ SEER HAD A VISION BUT HE NEVER SEES IT ALL
  YOUR SO IT'S HAD A FOR BUT
 
 rest in fervent fever till I take my curses back
-in your life's name
-every day I'm nearer to the drop of blood on the wall
+in your life's name every day I'm nearer to the drop of blood on the wall
 only thing i say is shame
 
 i can cast a spell of repetition 

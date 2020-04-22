@@ -30,9 +30,10 @@ what you gonna find
 
 so it's all forgiven count your blessings
 rest in fervent fever till I make it back
-seer had a vision but seer never sees all that is in life
-i can cast a spell 
+seer had a vision but he never sees it all 
+i can cast a spell in your life's name
 every day I'm nearer to the drop of blood on the wall
+only thing i say is shame
 
 
 before i made (it to) the top

@@ -28,9 +28,9 @@ make up your mind, brethren damned
 make up your mind, traces all around
 what you gonna find
 
-so it's all forgiven count your blessings all life
+so it's all forgiven count your blessings
 rest in fervent fever till I make it back
-seer had a vision, seer knows it all, 
+seer had a vision but seer never sees all that is in life
 i can cast a spell 
 every day I'm nearer to the drop of blood on the wall
 

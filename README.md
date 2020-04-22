@@ -24,10 +24,16 @@ i can see the signs
 i've been seering thru the skies
 i've been facing wrath of gods___ (long end)
 
-all's forgiven count your blessings
-rest in fervent fever 
-i cast a spell 
-till I take it back
+make up your mind, brethren damned
+make up your mind, traces all around
+what you gonna find
+
+so it's all forgiven count your blessings all life
+rest in fervent fever till I make it back
+seer had a vision, seer knows it all, 
+i can cast a spell 
+every day I'm nearer to the drop of blood on the wall
+
 
 before i made (it to) the top
 made my own demise

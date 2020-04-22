@@ -29,11 +29,13 @@ make up your mind, traces all around
 what you gonna find
 
 so it's all forgiven count your blessings
-rest in fervent fever till I make it back
 seer had a vision but he never sees it all 
-i can cast a spell in your life's name
+rest in fervent fever till I make it back
+in your life's name
 every day I'm nearer to the drop of blood on the wall
 only thing i say is shame
+
+i can cast a spell of repetition 
 
 
 before i made (it to) the top

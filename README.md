@@ -24,13 +24,13 @@ i can see the signs
 i've been seering thru the skies
 i've been facing wrath of gods___ (long end)
 
-make up your mind, brethren damned
+make up your mind, brethren be damned
 make up your mind, traces all around
 what you gonna find
 
 so it's all forgiven count your blessings
 seer had a vision but he never sees it all 
-rest in fervent fever till I make it back
+rest in fervent fever till I take my curses back
 in your life's name
 every day I'm nearer to the drop of blood on the wall
 only thing i say is shame

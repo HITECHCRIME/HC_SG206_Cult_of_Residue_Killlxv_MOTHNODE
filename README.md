@@ -28,7 +28,9 @@ make up your mind, brethren be damned
 make up your mind, traces all around
 what you gonna find
 
-SO IT'S ALL FORGIVEN COUNT YOUR BLESSINGS
+SO IT'S 
+ALL FORGIVEN COUNT YOUR BLESSINGS
+NEVER FEELING VERTIGOS YOUR SO IT'S HAD A FOR BUT
 SEER HAD A VISION BUT HE NEVER SEES IT ALL
 
 rest in fervent fever till I take my curses back

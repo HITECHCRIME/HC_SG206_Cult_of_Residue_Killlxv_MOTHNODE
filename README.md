@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# KILLXV x MOTHNODE_ RESIDUE
+# KILLLXV x MOTHNODE_ RESIDUE
 
 **Listen now:** 
 
@@ -8,9 +8,9 @@
 
 Hitech Crime hybrid single release from Killxv and MOTHNODE collaboration.
 
-**Title:** X / **Featuring:** Killxv + MOTHNODE
+**Title:** X / **Featuring:** Killlxv + MOTHNODE
 
-**Production:** Killxv / **Lyrics:** Killxv + MOTHNODE
+**Production:** Killxv / **Lyrics:** Killlxv + MOTHNODE
 
 **Narrative Design:**
 

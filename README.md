@@ -9,6 +9,7 @@
 Hitech Crime hybrid single release from Killxv and MOTHNODE collaboration.
 
 Suggestions: https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
+https://www.youtube.com/watch?v=9OdpAC5hUMM (free for profit)
 
 **Title:** X / **Featuring:** Killlxv + MOTHNODE
 
@@ -21,6 +22,13 @@ Suggestions: https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
 ## Lyrics
 
 ```
+INTRO
+i can see the signs
+- forming all around
+i've been seering thru the skies
+i've been facing wrath of gods___ (long end)
+FIRST BASS DROP
+
 i can see the signs
 - forming all around
 i've been seering thru the skies
@@ -28,11 +36,11 @@ i've been facing wrath of gods___ (long end)
 
 make up your mind, brethren be damned
 make up your mind, traces all around
-what you gonna find
 
-SO IT'S ALL FORGIVEN (NEVER) COUNT YOUR BLESSINGS 
-SEE I (NEVER?) FELT THE VERTIGO(S) (SO) PRESSING ON MY MERIT
-YOU JUST BETTER NEED TO HEED THE OMENS (BLOOD) 
+
+SO IT'S ALL FORGIVEN NEVER COUNT YOUR BLESSINGS  /// NEVER COUNTING BLESSINGS
+SEE I NEVER FELT THE VERTIGOS SO PRESSING ON MY MERIT
+YOU JUST BETTER NEED TO HEED THE OMENS BLOOD 
 SEER HAD A VISION BUT HE NEVER SEES IT ALL
 
  VEER INTO COLLISIONS - WIND IN MY EYES

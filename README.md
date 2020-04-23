@@ -8,6 +8,8 @@
 
 Hitech Crime hybrid single release from Killxv and MOTHNODE collaboration.
 
+Suggestions: https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
+
 **Title:** X / **Featuring:** Killlxv + MOTHNODE
 
 **Production:** Killxv / **Lyrics:** Killlxv + MOTHNODE

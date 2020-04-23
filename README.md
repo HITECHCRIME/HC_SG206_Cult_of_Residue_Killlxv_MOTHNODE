@@ -12,7 +12,7 @@ Suggestions: https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
 
 **Title:** X / **Featuring:** Killlxv + MOTHNODE
 
-**Production:** Killxv / **Lyrics:** Killlxv + MOTHNODE
+**Production:** Killlxv / **Lyrics:** Killlxv + MOTHNODE
 
 **Narrative Design:**
 
@@ -50,6 +50,7 @@ i can cast a spell of repetition
 before i made (it to) the top
 made my own demise
 along gone paths
+fate is like that
 keen on tricking ya all 
 
 is this true,

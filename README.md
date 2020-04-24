@@ -8,8 +8,11 @@
 
 Hitech Crime hybrid single release from Killxv and MOTHNODE collaboration.
 
-Suggestions: https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
-https://www.youtube.com/watch?v=9OdpAC5hUMM (free for profit)
+Suggestions: 
+- https://www.youtube.com/watch?v=nhKmmo2QQeU
+- https://soundcloud.com/deathwrd/runfromtheseeyes-realtrapshit
+- https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
+- https://www.youtube.com/watch?v=9OdpAC5hUMM (free for profit) CHOSEN
 
 **Title:** X / **Featuring:** Killlxv + MOTHNODE
 

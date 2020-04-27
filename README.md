@@ -25,30 +25,19 @@ Suggestions:
 ## Lyrics
 
 ```
-INTRO [MOTH]
-i can see the signs forming all around
-i've been seering thru the skies
-i've been facing wrath of gods___ (long end)
-(gods)
+I can see the signs forming all around                   /// MOTHNODE
+I've been seering thru the skies
+I've been facing wrath of gods
 
-CHORUS [MOTH]
-i can see the signs forming all around
-i've been seering thru the skies
-i've been facing wrath of gods___ (long end)
+Make up your mind, brethren be damned
+Make up your mind, traces all around
 
-BRIDGE [MOTH]
-make up your mind, brethren be damned
-make up your mind, traces all around
+So it's all forgiven never count your blessings
+See I never felt the vertigos so pressing on my merit
+You just better need to heed the omens blood
+Seer had a vision but he never sees it all
 
-VERSE [MOTH]
-SO IT'S ALL FORGIVEN NEVER COUNT YOUR BLESSINGS /// NEVER COUNTING BLESSINGS
-SEE I NEVER FELT THE VERTIGOS SO PRESSING ON MY MERIT
-YOU JUST BETTER NEED TO HEED THE OMENS BLOOD 
-SEER HAD A VISION BUT HE NEVER SEES IT ALL
-
-VERSE [KILLLXV]
-
-Hate is the only thing running in my veins
+Hate is the only thing running in my veins               /// KILLLXV
 I'm a sick fuck just another product of pain
 
 All of my disciples are rebels they just wanna kill
@@ -60,14 +49,12 @@ They feeding on your soul and leading to your death
 Bloodied up bloodied up
 Bloodied up bloodied up
 
-BRIDGE [MOTH + KILLLXV]
-make up your mind, brethren be damned
-make up your mind, traces all around
+Make up your mind, brethren be damned                   /// MOTHNODE + KILLXV
+Make up your mind, traces all around
 
-CHORUS [MOTH + KILLLXV]
-i can see the signs forming all around
-i've been seering thru the skies
-i've been facing wrath of gods___ (long end)
+I can see the signs forming all around                   /// MOTHNODE + KILLXV
+I've been seering thru the skies
+I've been facing wrath of gods
 
 ----------------------------------------------
 

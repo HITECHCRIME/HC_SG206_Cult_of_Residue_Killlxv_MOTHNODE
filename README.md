@@ -1,20 +1,14 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# KILLLXV x MOTHNODE_ RESIDUE
+# KILLLXV x MOTHNODE_ Residue
 
-**Listen now:** 
+**Listen now:** <Soundcloud link> <Spotify link> <IGTV link>
 
 ## Project Data
 
-Hitech Crime hybrid single release from Killxv and MOTHNODE collaboration.
+Hitech Crime Hybrids release from Killxv and MOTHNODE collaboration.
 
-Suggestions: 
-- https://www.youtube.com/watch?v=nhKmmo2QQeU
-- https://soundcloud.com/deathwrd/runfromtheseeyes-realtrapshit
-- https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
-- https://www.youtube.com/watch?v=9OdpAC5hUMM (free for profit) CHOSEN
-
-**Title:** X / **Featuring:** Killlxv + MOTHNODE
+**Title:** Residue / **Featuring:** Killlxv + MOTHNODE
 
 **Production:** Killlxv / **Lyrics:** Killlxv + MOTHNODE
 
@@ -83,6 +77,12 @@ i been tellin on ya all
 ```
 
 ## Notes
+
+Beat Suggestions: 
+- https://www.youtube.com/watch?v=nhKmmo2QQeU
+- https://soundcloud.com/deathwrd/runfromtheseeyes-realtrapshit
+- https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
+- https://www.youtube.com/watch?v=9OdpAC5hUMM (free for profit) CHOSEN
 
 Gospel of hate, the RESIDUE of torn connection with humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it.
 

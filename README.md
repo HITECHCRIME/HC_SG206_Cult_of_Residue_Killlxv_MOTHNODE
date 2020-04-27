@@ -1,4 +1,4 @@
-[cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
+![](residue-cover-placeholder.png)
 
 # KILLLXV x MOTHNODE_ Residue
 

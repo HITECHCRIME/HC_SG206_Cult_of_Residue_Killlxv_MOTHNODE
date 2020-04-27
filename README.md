@@ -2,7 +2,10 @@
 
 # KILLLXV x MOTHNODE_ Residue
 
-**Listen now:** <Soundcloud link> <Spotify link> <IGTV link>
+**Listen now:** 
+- Soundcloud link
+- Spotify link
+- IGTV link
 
 ## Project Data
 

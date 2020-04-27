@@ -1,4 +1,4 @@
-![](residue-cover-placeholder.png)
+![](residue-cover-holder.png)
 
 # KILLLXV x MOTHNODE_ Residue
 

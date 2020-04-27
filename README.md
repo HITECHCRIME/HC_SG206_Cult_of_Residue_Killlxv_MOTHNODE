@@ -13,7 +13,7 @@ Hitech Crime Hybrids release from Killxv and MOTHNODE collaboration.
 
 **Title:** Residue / **Featuring:** Killlxv + MOTHNODE
 
-**Production:** Killlxv / **Lyrics:** Killlxv + MOTHNODE
+**Production:** Killlxv + MOTHNODE / **Lyrics:** Killlxv + MOTHNODE
 
 **Narrative Design:**
 

@@ -48,13 +48,17 @@ SEER HAD A VISION BUT HE NEVER SEES IT ALL
 
 VERSE [KILLLXV]
 
+Hate is the only thing running in my veins
+I'm a sick fuck just another product of pain
 
+All of my disciples are rebels they just wanna kill
+Murder on my fingertips a source of my adrenaline 
 
+All of these perpetrators that you wanna protect 
+They feeding on your soul and leading to your death
 
-
-
-
-
+Bloodied up bloodied up
+Bloodied up bloodied up
 
 BRIDGE [MOTH + KILLLXV]
 make up your mind, brethren be damned
@@ -64,8 +68,6 @@ CHORUS [MOTH + KILLLXV]
 i can see the signs forming all around
 i've been seering thru the skies
 i've been facing wrath of gods___ (long end)
-
-
 
 ----------------------------------------------
 
@@ -94,5 +96,7 @@ i been tellin on ya all
 ```
 
 ## Notes
+
+Gospel of hate, the RESIDUE of torn connection with humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it.
 
 ## Music Video

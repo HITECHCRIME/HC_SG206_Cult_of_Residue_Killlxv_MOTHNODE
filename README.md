@@ -53,30 +53,6 @@ I can see the signs forming all around                   /// MOTHNODE + KILLXV
 I've been seering thru the skies
 I've been facing wrath of gods
 
-----------------------------------------------
-
-MISC VERSES
-
-VEER INTO COLLISIONS - WIND IN MY EYES
-YOUR SO IT'S HAD A FOR BUT
-
-rest in fervent fever till I take my curses back
-in your life's name every day I'm nearer to the drop of blood on the wall
-only thing i say is shame
-
-i can cast a spell of repetition 
-before i made (it to) the top
-made my own demise
-along gone paths
-fate is like that
-keen on tricking ya all 
-
-is this true,
-been facing wrath of gods alone
-they told me it's enough
-wanna drop it but I know i can't stop it
-i been tellin on ya all
-
 ```
 
 ## Notes

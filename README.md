@@ -1,4 +1,4 @@
-![](residue-cover-holder.png)
+![](cult_of_residue_final_cover.png)
 
 # Killlxv x MOTHNODE_ Cult of Residue
 

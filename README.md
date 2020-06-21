@@ -1,6 +1,6 @@
 ![](residue-cover-holder.png)
 
-# KILLLXV x MOTHNODE_ Residue
+# Killlxv x MOTHNODE_ Cult of Residue
 
 **Listen now:** 
 - Soundcloud link
@@ -9,21 +9,21 @@
 
 ## Project Data
 
-Hitech Crime Hybrids release from Killxv and MOTHNODE collaboration.
+Hitech Crime Hybrid Continuous Album release from Killlxv and MOTHNODE collaboration.
 
-**Title:** Residue / **Featuring:** Killlxv + MOTHNODE
+**Title:** Cult of Residue / **Featuring:** Killlxv, MOTHNODE
 
-**Production:** Killlxv + MOTHNODE / **Lyrics:** Killlxv + MOTHNODE
+**Production:** Killlxv, MOTHNODE / **Lyrics:** Killlxv, MOTHNODE
 
-**Narrative Design:**
+**Narrative Design:** Killlxv, MOTHNODE
 
-**Music Video Credits:**
+**Music Video Credits:** Killlxv, MOTHNODE
 
 ## Lyrics
 
 ```
 I can see the signs forming all around                   /// MOTHNODE
-I've been seering thru the skies
+I've been seering through the skies
 I've been facing wrath of gods
 
 Make up your mind, brethren be damned
@@ -45,13 +45,6 @@ They feeding on your soul and leading to your death
 
 Bloodied up bloodied up
 Bloodied up bloodied up
-
-Make up your mind, brethren be damned                   /// MOTHNODE + KILLXV
-Make up your mind, traces all around
-
-I can see the signs forming all around                   /// MOTHNODE + KILLXV
-I've been seering thru the skies
-I've been facing wrath of gods
 
 ```
 

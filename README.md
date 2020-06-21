@@ -22,29 +22,29 @@ Hitech Crime Hybrid Continuous Album release from Killlxv and MOTHNODE collabora
 ## Lyrics
 
 ```
-I can see the signs forming all around                   /// MOTHNODE
-I've been seering through the skies
-I've been facing wrath of gods
+i can see the signs forming all around                   /// MOTHNODE
+i've been seering through the skies
+i've been facing wrath of gods
 
-Make up your mind, brethren be damned
-Make up your mind, traces all around
+make up your mind, brethren be damned
+make up your mind, traces all around
 
-So it's all forgiven never count your blessings
-See I never felt the vertigos so pressing on my merit
-You just better need to heed the omens blood
-Seer had a vision but he never sees it all
+so it's all forgiven never count your blessings
+see I never felt the vertigos so pressing on my merit
+you just better need to heed the omens blood
+seer had a vision but he never sees it all
 
-Hate is the only thing running in my veins               /// KILLLXV
-I'm a sick fuck just another product of pain
+hate is the only thing running in my veins               /// KILLLXV
+i'm a sick fuck just another product of pain
 
-All of my disciples are rebels they just wanna kill
-Murder on my fingertips a source of my adrenaline 
+all of my disciples are rebels they just wanna kill
+murder on my fingertips a source of my adrenaline 
 
-All of these perpetrators that you wanna protect 
-They feeding on your soul and leading to your death
+all of these perpetrators that you wanna protect 
+they feeding on your soul and leading to your death
 
-Bloodied up bloodied up
-Bloodied up bloodied up
+bloodied up, bloodied up
+bloodied up, bloodied up
 
 ```
 

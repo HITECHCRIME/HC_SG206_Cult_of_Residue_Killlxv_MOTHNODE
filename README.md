@@ -50,7 +50,7 @@ bloodied up, bloodied up
 
 ## Notes
 
-Gospel of hate, the Residue of torn connection between humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it.
+Gospel of hate, the Residue of torn connection between humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it. Flesh vs soul discrepancy.
 
 ## Music Video
 

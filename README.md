@@ -50,13 +50,7 @@ bloodied up, bloodied up
 
 ## Notes
 
-Beat Suggestions: 
-- https://www.youtube.com/watch?v=nhKmmo2QQeU
-- https://soundcloud.com/deathwrd/runfromtheseeyes-realtrapshit
-- https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
-- https://www.youtube.com/watch?v=9OdpAC5hUMM (free for profit) CHOSEN
-
-Gospel of hate, the RESIDUE of torn connection with humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it.
+Gospel of hate, the Residue of torn connection between humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it.
 
 ## Music Video
 
@@ -67,3 +61,11 @@ Gospel of hate, the RESIDUE of torn connection with humans. It is the issue of r
 - delicate futura
 - mix of ancient and hitech
 - digital ancestry
+
+## Note Archive
+
+Beat Suggestions: 
+- https://www.youtube.com/watch?v=nhKmmo2QQeU
+- https://soundcloud.com/deathwrd/runfromtheseeyes-realtrapshit
+- https://www.youtube.com/watch?v=76SlelvVPLU (free for profit)
+- https://www.youtube.com/watch?v=9OdpAC5hUMM (free for profit) CHOSEN

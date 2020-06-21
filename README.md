@@ -66,3 +66,4 @@ Gospel of hate, the RESIDUE of torn connection with humans. It is the issue of r
 - dark robes
 - delicate futura
 - mix of ancient and hitech
+- digital ancestry

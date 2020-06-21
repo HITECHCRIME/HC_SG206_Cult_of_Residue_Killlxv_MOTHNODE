@@ -1,6 +1,6 @@
 ![](cult_of_residue_final_cover.png)
 
-# Killlxv x MOTHNODE_ Cult of Residue [GRITGODS]
+# Killlxv x MOTHNODE_ Cult of Residue [Gritgods]
 
 **Listen now:** 
 - Soundcloud link

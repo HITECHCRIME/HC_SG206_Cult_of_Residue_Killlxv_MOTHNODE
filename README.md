@@ -59,3 +59,10 @@ Beat Suggestions:
 Gospel of hate, the RESIDUE of torn connection with humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it.
 
 ## Music Video
+
+- symbolism
+- mysticism
+- chants
+- dark robes
+- delicate futura
+- mix of ancient and hitech

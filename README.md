@@ -22,7 +22,17 @@ Hitech Crime Hybrid Continuous Album release from Killlxv and MOTHNODE collabora
 ## Lyrics
 
 ```
-i can see the signs forming all around                   /// MOTHNODE
+i can see the signs forming all around           
+i've been seering through the skies
+i've been facing wrath of gods
+
+i can see the signs forming all around           
+i've been seering through the skies
+i've been facing wrath of gods
+
+gods
+
+i can see the signs forming all around           
 i've been seering through the skies
 i've been facing wrath of gods
 
@@ -34,7 +44,7 @@ see I never felt the vertigos so pressing on my merit
 you just better need to heed the omens blood
 seer had a vision but he never sees it all
 
-hate is the only thing running in my veins               /// KILLLXV
+hate is the only thing running in my veins    
 i'm a sick fuck just another product of pain
 
 all of my disciples are rebels they just wanna kill

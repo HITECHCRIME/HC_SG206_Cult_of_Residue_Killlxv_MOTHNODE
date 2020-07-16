@@ -51,7 +51,7 @@ all of my disciples are rebels they just wanna kill
 murder on my fingertips a source of my adrenaline 
 
 all of these perpetrators that you wanna protect 
-they feeding on your soul and leading to your death
+they feed onto your soul and lead into your death
 
 bloodied up, bloodied up
 bloodied up, bloodied up

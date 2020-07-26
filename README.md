@@ -4,6 +4,9 @@
 
 **Listen now:** 
 - Spotify_ https://open.spotify.com/track/2WoXnmEu0DGgER3u45Q9VV?si=KpaJZ-GAS5mjERrpkJOw7w
+- Apple Music_ https://music.apple.com/pl/album/cult-of-residue/1524982371?i=1524982373&uo=4&app=music&ct=FFM_6fee4a9b83bcc386b184334a1815cae1&at=1001lwQy
+- Apple Store_ https://music.apple.com/pl/album/cult-of-residue/1524982371?i=1524982373&uo=4&app=itunes&ct=FFM_ff1bfb4fd364f2099734182507de3c7c&at=1001lwQy
+- Deezer_ https://www.deezer.com/us/track/1032588272
 - Soundcloud_
 - YouTube Music Video_
 - YouTube Lyrics Video_

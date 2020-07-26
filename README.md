@@ -3,10 +3,15 @@
 # Killlxv x MOTHNODE_ Cult of Residue [Gritgods]
 
 **Listen now:** 
-- Soundcloud link
-- Spotify link: https://open.spotify.com/track/2WoXnmEu0DGgER3u45Q9VV?si=KpaJZ-GAS5mjERrpkJOw7w
-- Genius lyrics: https://genius.com/Killlxv-mothnode-cult-of-residue-lyrics
-- IGTV link
+- Spotify_ https://open.spotify.com/track/2WoXnmEu0DGgER3u45Q9VV?si=KpaJZ-GAS5mjERrpkJOw7w
+- Soundcloud_
+- YouTube Music Video_
+- YouTube Lyrics Video_
+- YouTube Listing_ https://www.youtube.com/watch?v=fRni9ZLiVvQ
+- IGTV Preview_
+- Instagram Preview_
+- Genius_ https://genius.com/Killlxv-mothnode-cult-of-residue-lyrics (lyrics)
+
 
 ## Project Data
 

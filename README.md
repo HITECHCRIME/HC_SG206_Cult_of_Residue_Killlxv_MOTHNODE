@@ -79,7 +79,7 @@ Similar artists: Ghostemane, Killstation, XXXTentacion, OmenXIII, Pr0jek, Bones,
 
 **Submitted via SubmitHub to:**
 - Digital Tour Bus
--
+- Eric Duvel and Tone
 -
 -
 -

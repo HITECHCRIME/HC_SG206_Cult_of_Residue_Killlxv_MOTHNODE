@@ -64,7 +64,7 @@ A viceral, emotionally occult track from Grit Gods duo consisting of Killlxv and
 (480 characters)
 
 A viceral, emotionally occult track from Grit Gods duo Killlxv and MOTHNODE. Residue is the torn connection between humans resulting in cult-like approach to grasping for it at every possibility.
-(192 characters)
+(195 characters)
 
 /// old_
 Gospel of hate, . It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it. Flesh vs soul discrepancy.

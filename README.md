@@ -5,6 +5,7 @@
 **Listen now:** 
 - Soundcloud link
 - Spotify link: https://open.spotify.com/track/2WoXnmEu0DGgER3u45Q9VV?si=KpaJZ-GAS5mjERrpkJOw7w
+- Genius lyrics: https://genius.com/Killlxv-mothnode-cult-of-residue-lyrics
 - IGTV link
 
 ## Project Data
@@ -72,7 +73,7 @@ Gospel of hate, . It is the issue of residue being the only thing remaining that
 Similar artists: Ghostemane, Killstation, XXXTentacion, OmenXIII, Pr0jek, Bones, Suicideboys, Gizmo, Subjectz, Zillakami
 
 **Submitted via SubmitHub to:**
--
+- Digital Tour Bus
 -
 -
 -

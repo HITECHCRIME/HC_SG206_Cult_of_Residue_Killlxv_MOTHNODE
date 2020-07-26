@@ -69,7 +69,7 @@ A viceral, emotionally occult track from Grit Gods duo Killlxv and MOTHNODE. Res
 /// old_
 Gospel of hate, . It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it. Flesh vs soul discrepancy.
 
-
+Ghostemane, Killstation, XXXTentacion, OmenXIII, Pr0jek, Bones, Suicideboys, Gizmo, Subjectz, Zillakami
 
 ## Music Video
 

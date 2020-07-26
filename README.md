@@ -4,7 +4,7 @@
 
 **Listen now:** 
 - Soundcloud link
-- Spotify link
+- Spotify link: https://open.spotify.com/track/2WoXnmEu0DGgER3u45Q9VV?si=KpaJZ-GAS5mjERrpkJOw7w
 - IGTV link
 
 ## Project Data
@@ -60,7 +60,11 @@ bloodied up, bloodied up
 
 ## Notes
 
+A viceral, emotionally occult track from a sideproject duo called Grit Gods consisting of Killlxv and MOTHNODE has found its way into the void. Conjoined deathcore influences and heavy bass might break through the veil, tread carefully on full volume. Sometimes it is better to break through the illusion and describe the actual truth rather  
+
 Gospel of hate, the Residue of torn connection between humans. It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it. Flesh vs soul discrepancy.
+
+
 
 ## Music Video
 

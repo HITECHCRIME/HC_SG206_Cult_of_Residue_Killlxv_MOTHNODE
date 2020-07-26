@@ -61,6 +61,10 @@ bloodied up, bloodied up
 ## Notes
 
 A viceral, emotionally occult track from Grit Gods duo consisting of Killlxv and MOTHNODE has found its way into the void. Conjoined deathcore influences and heavy bass might break through the veil, tread carefully on full volume. Sometimes though, it is better to break through the illusion and describe the actual truth. The titular residue represents the torn connection between humans in our modern age and resulting cult-like approach to grasping for it at every possibility.
+(480 characters)
+
+A viceral, emotionally occult track from Grit Gods duo Killlxv and MOTHNODE. Residue is the torn connection between humans resulting in cult-like approach to grasping for it at every possibility.
+(192 characters)
 
 /// old_
 Gospel of hate, . It is the issue of residue being the only thing remaining that can bring us back to love of the world but it is really pointless to look for it. Flesh vs soul discrepancy.

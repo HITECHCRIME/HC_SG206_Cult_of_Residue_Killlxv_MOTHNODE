@@ -15,7 +15,7 @@
 
 ## Project Data
 
-Hitech Crime Hybrid Continuous Album release from Killlxv and MOTHNODE collaboration.
+Hitech Crime Hybrid Continuous Album release from Killlxv and MOTHNODE Grit Gods duo.
 
 **Title:** Cult of Residue / **Featuring:** Killlxv, MOTHNODE
 

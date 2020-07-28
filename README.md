@@ -17,8 +17,8 @@
 - Genius_ https://genius.com/Killlxv-mothnode-cult-of-residue-lyrics (lyrics)
 
 **Promo:**
-- Killlxv Insta Promo_
-- MOTHNODE Insta Promo_ 
+- Killlxv Insta Promo_ https://www.instagram.com/p/CDMce_TDQ_F/
+- MOTHNODE Insta Promo_ https://www.instagram.com/p/CDMR2JbnWew/
 - illbiz Insta Promo_
 
 ## Project Data

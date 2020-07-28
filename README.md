@@ -91,6 +91,58 @@ Similar artists: Ghostemane, Killstation, XXXTentacion, OmenXIII, Pr0jek, Bones,
 -
 -
 
+## Insta Promo Post
+
+/// New injection into Hitech Crime Hybrids continuous album brings an emotionally occult track from Grit Gods duo consisting of @killlxv and @mothnode. Conjoined deathcore influences and heavy bass might break through the veil, tread carefully on full volume. Sometimes though, it is better to break through the illusion and describe the actual truth. The titular residue represents the torn connection between humans in our modern age and resulting cult-like approach to grasping for it at every possibility.
+
+/// Listen to the full song through link in bio. Available uplinks_ Spotify, YouTube, Apple Music, iTunes Store, Amazon Music and Deezer.
+⁣
+⁣/// DIRECTOR OPERATIVE_ @mothnode⁣
+/// OPERATIVE_ @killlxv
+⁣
+⁣⁣⁣⁣⁣⁣/// TARGET_ Killlxv x MOTHNODE_ Cult of Residue⁣
+⁣
+⁣⁣⁣⁣⁣⁣/// BEAT_ Angelvs⁣⁣
+⁣
+⁣⁣/// LYRICAL INSIGHT_⁣⁣
+Lyrics also available on Genius.
+⁣
+i can see the signs forming all around           
+i've been seering through the skies
+i've been facing wrath of gods
+
+i can see the signs forming all around           
+i've been seering through the skies
+i've been facing wrath of gods
+
+gods
+
+i can see the signs forming all around           
+i've been seering through the skies
+i've been facing wrath of gods
+
+make up your mind, brethren be damned
+make up your mind, traces all around
+
+so it's all forgiven never count your blessings
+see I never felt the vertigos so pressing on my merit
+you just better need to heed the omens blood
+seer had a vision but he never sees it all
+
+hate is the only thing running in my veins    
+i'm a sick fuck just another product of pain
+
+all of my disciples are rebels they just wanna kill
+murder on my fingertips a source of my adrenaline 
+
+all of these perpetrators that you wanna protect 
+they feed onto your soul and lead into your death
+
+bloodied up, bloodied up
+bloodied up, bloodied up
+⁣
+#trapmusic #trapcore #trapmetal #shadowrap #rapmetal #metal #deathcore #trap #occult #religion #godsaveusall #darktrap #darkmusic #gritty #darkness #undergroundhiphop #underground
+
 ## Music Video
 
 - symbolism
